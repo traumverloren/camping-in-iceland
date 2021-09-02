@@ -21,7 +21,7 @@ Post-trip:
 
 ### How did I choose a camper rental?
 
-Honestly, I didn't plan my trip planning to rent a camper van. I was thinking about staying in Reykavik & take some tours out from there, then I decided I wanted to do the ring road around Iceland and looked at tour buses (ridiculously expensive), then getting a rental car & renting hotel rooms, then landed on getting a camper van since would probably be the most flexible option & honestly the most affordable for me traveling solo. 
+Honestly, I didn't plan my trip planning to rent a camper van. I was thinking about staying in Reykjavik & take some tours out from there, then I decided I wanted to do the ring road around Iceland and looked at tour buses (ridiculously expensive), then getting a rental car & renting hotel rooms, then landed on getting a camper van since would probably be the most flexible option & honestly the most affordable for me traveling solo. 
 
 I rented my camper from [Happy Campers](https://happycampers.is/) after watching [this video](https://www.youtube.com/watch?v=RE1PQPCYbGg) of a woman solo camping in Iceland using their van. I felt like if it worked for her, it would work for me! There office is close to Keflavik International Airport & they offer a shuttle pickup from the airport every hour.
 
