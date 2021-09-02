@@ -36,7 +36,7 @@ Of course, I checked out other camper rentals, but felt the Happer Camper setup 
 
 https://user-images.githubusercontent.com/9959680/131902507-43ab78ac-ef16-4b5c-88c4-a7c35154f731.mp4
 
-
+As you can see in my video above, I really fell in love with this little VW Caddy. (I named him Karl the camper, btw) It was easy to drive and as long as I didn't go on too rough of a gravel road (some campsite roads are brutal 😅) the 2WD little chariot was a dream to drive & live in for a week!
 
 ---
 
