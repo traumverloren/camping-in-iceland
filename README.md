@@ -96,6 +96,7 @@ Most important non-clothing item I brought wasmy coffee making supplies! I'm a c
   - Gobstoppers
 - 2 swimsuits
 - Dopper waterbottle
+- Lonely Planet "Iceland"
 - Clothing:
   - 2 pairs lululemon wunderunder leggings
   - lululemon long sleeve running shirt
