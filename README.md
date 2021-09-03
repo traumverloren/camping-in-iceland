@@ -64,7 +64,7 @@ During the trip, I spent a lot of time checking the google reviews and photos of
 
 ### What did I pack?
 
-I only packed a [Tom Bihn Aeronaut 45](https://www.tombihn.com/collections/travel-bags/products/aeronaut-45?variant=16037975719999) carry-on bag & my trusty Fjällräven kånken backpack. I knew the camper would be light on storage for my large hardcase Rimowa checked luggage, but honestly I was completely freaked out about the time it might take to get through the covid-19 checks at the Arrivals at Keflavik airport after reading this [article](https://icelandmonitor.mbl.is/news/news/2021/08/09/passengers_arriving_in_iceland_stuck_in_line_for_ho/). I was arriving at 14:30 & needed to pick up my camper by 16:30 & was concerned about making it out of the airport in time. So I planned for carry-on only & even paid & booked a first row seat on the plane. This turned out to be unnecessary as there was no line of course when I arrived. 🙃
+I only packed a [Tom Bihn Aeronaut 45](https://www.tombihn.com/collections/travel-bags/products/aeronaut-45?variant=16037975719999) carry-on bag & my trusty Fjällräven kånken backpack. I knew the camper would be light on storage for my large hardcase Rimowa checked luggage... But the real reason for carry-on only was that I was completely freaked out about the time it might take to get through the covid-19 checks at the Arrivals at Keflavik airport after reading this [article](https://icelandmonitor.mbl.is/news/news/2021/08/09/passengers_arriving_in_iceland_stuck_in_line_for_ho/). I was arriving at 14:30 & needed to pick up my camper by 16:30 & was concerned about making it out of the airport in time. So I planned for carry-on only & even paid & booked a first row seat on the plane. This turned out to be unnecessary as there was no line of course when I arrived. 🙃
 
 I knew the temps would be cool but not unbearable, especially since I love cooler weather, so it was not necessary for me to bring a lot of items for layering. Also, I'm ok with washing underwear and shirts in the sink and letting them dry to rewear in order to save luggage space.
 
@@ -127,6 +127,7 @@ The most important non-clothing items I brought were my coffee making supplies! 
 In retrospect, I hesitated & didn't pack a couple items that I would NOT forget the next time. They were:
 
 - Headlamp (for trips to bathroom in the night!)
+- Nail glue (I have long beautiful natural nails, but the camping & hot bath soaks were brutal on my nails & I split a nail at end of the trip & paid heavily to find nail glue to repair it during the trip!)
 - Suncreen (for the sun in the northern part of the island!)
 
 
