@@ -64,13 +64,13 @@ During the trip, I spent a lot of time checking the google reviews and photos of
 
 ### What did I pack?
 
-I only packed a [Tom Bihn Aeronaut 45](https://www.tombihn.com/collections/travel-bags/products/aeronaut-45?variant=16037975719999) carry-on bag & my trusty Fjällräven kånken backpack. I knew the camper would be light on storage for my large hardcase Rimowa checked luggage, but honestly I was completely freaked out about the time it might take to get through the covid-19 checks at the Arrivals at Keflavik airport after reading this [article](https://icelandmonitor.mbl.is/news/news/2021/08/09/passengers_arriving_in_iceland_stuck_in_line_for_ho/). I was arriving at 14:30 & needed to pick up my camper by 16:30 & was concerned about making it out of the airport in time. So I planned for carry-on only & even paid & booked a first row seat on the plane. This turned out to be unnecessary as there was no line of course for me when I arrived. 🙃
+I only packed a [Tom Bihn Aeronaut 45](https://www.tombihn.com/collections/travel-bags/products/aeronaut-45?variant=16037975719999) carry-on bag & my trusty Fjällräven kånken backpack. I knew the camper would be light on storage for my large hardcase Rimowa checked luggage, but honestly I was completely freaked out about the time it might take to get through the covid-19 checks at the Arrivals at Keflavik airport after reading this [article](https://icelandmonitor.mbl.is/news/news/2021/08/09/passengers_arriving_in_iceland_stuck_in_line_for_ho/). I was arriving at 14:30 & needed to pick up my camper by 16:30 & was concerned about making it out of the airport in time. So I planned for carry-on only & even paid & booked a first row seat on the plane. This turned out to be unnecessary as there was no line of course when I arrived. 🙃
 
-I knew the temps would be cool but not unbearable, especially since I love cooler weather, so it was necessary to bring alot of items for layering, plus I'm ok with washing underwear and shirts in the sink and letting them dry to save luggage space.
+I knew the temps would be cool but not unbearable, especially since I love cooler weather, so it was not necessary for me to bring a lot of items for layering. Also, I'm ok with washing underwear and shirts in the sink and letting them dry to rewear in order to save luggage space.
 
 ![](https://user-images.githubusercontent.com/9959680/132045385-612e855b-042e-4e9a-a00a-33372d110383.JPEG)
 
-Most important non-clothing item I brought wasmy coffee making supplies! I'm a coffee enthuisaist & was very much daydreaming about the moment each morning where I would prepare an aeropress coffee in the camper 😍.
+The most important non-clothing items I brought were my coffee making supplies! I'm a coffee enthusiast & daydreamed heavily about the moment each morning where I would prepare an aeropress coffee in the camper 😍.
 
 #### Pack list:
 
