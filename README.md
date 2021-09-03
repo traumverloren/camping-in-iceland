@@ -1,5 +1,7 @@
 # My Guide to Solo Camping in Iceland 🇮🇸
 
+Doing a solo camping trip in Iceland is a brilliant idea if you are a person (especially a woman) that has been interested in tackling traveling or camping alone. Iceland is relatively safe & if you have a driver's license and not scared of driving on some gravel roads or one-lane bridges, it's a beautiful country to explore. ✨
+
 ![](https://user-images.githubusercontent.com/9959680/131901170-5d0b9bb9-b2aa-450f-8a9f-13230ab0290d.JPG)
 
 
@@ -18,6 +20,8 @@ Post-trip:
 - [What's next?](#whats-next)
 
 ---
+
+## Pre-trip planning:
 
 ### How did I choose a camper rental?
 
@@ -42,6 +46,20 @@ As you can see in my video above, I really fell in love with this little VW Cadd
 
 ### How did I plan my itinerary?
 
+Honestly figuring out my route was my biggest stress going into the trip. I knew I wanted do a clockwise loop around the island and hit several geothermal baths & see cool land formations. I basically focused on main tourist sites in [this google map I created](https://www.google.com/maps/d/u/0/edit?mid=1YV8FF4ZWxXEUkmTUc94H3E1EFlFTJ6ov&usp=sharing) & then cross-referenced with these campsite google maps:
+
+- [Happy Campers Campsite Guide](https://www.google.de/maps/@64.9072787,-21.9859533,6z/data=!3m1!4b1!4m2!6m1!1s1wk_t105qo4BYqaBL7xTcLUz5uXQ)
+- [Campsite of Iceland](https://www.google.de/maps/@64.6605078,-24.8965918,5z/data=!3m1!4b1!4m2!6m1!1s1gJV0ZEEDYENMWKp4hvMoeEpDQycW9IHd)
+
+I estimated I would be ok driving 4-5 hours a day to be able to complete the trip in 7 days and that's how I initially planned what campsites would stay at.
+
+
+![](https://user-images.githubusercontent.com/9959680/132043692-315a957f-2658-4191-9bbd-4b21bc32e272.jpg)
+![](https://user-images.githubusercontent.com/9959680/132043717-130ec065-0ddf-44e7-8f36-74e5da255db2.jpg)
+
+
+During the trip, I spent a lot of time checking the google reviews and photos of different campsite to make sure it felt like I would like the scenery & would hopefully not be too busy cuz of too many amenities. I actually ended up preferring the more primitive campsites that only offered toilets & perhaps an outdoor sink since they were less populated with families & kids.
+
 ---
 
 ### What did I pack?
@@ -53,6 +71,8 @@ As you can see in my video above, I really fell in love with this little VW Cadd
 
 
 ---
+
+## Post-trip:
 
 
 ### My completed itinerary
