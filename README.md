@@ -58,16 +58,83 @@ I estimated I would be ok driving 4-5 hours a day to be able to complete the tri
 ![](https://user-images.githubusercontent.com/9959680/132043717-130ec065-0ddf-44e7-8f36-74e5da255db2.jpg)
 
 
-During the trip, I spent a lot of time checking the google reviews and photos of different campsite to make sure it felt like I would like the scenery & would hopefully not be too busy cuz of too many amenities. I actually ended up preferring the more primitive campsites that only offered toilets & perhaps an outdoor sink since they were less populated with families & kids.
+During the trip, I spent a lot of time checking the google reviews and photos of different campsites to make sure it felt like I would like the scenery & would hopefully not be too busy because they offerred many amenities (kitchen, showers, washing machines, etc). I actually ended up preferring the more primitive campsites that only offered toilets & perhaps an outdoor sink since they were less populated with families & kids.
 
 ---
 
 ### What did I pack?
 
+I only packed a [Tom Bihn Aeronaut 45](https://www.tombihn.com/collections/travel-bags/products/aeronaut-45?variant=16037975719999) carry-on bag & my trusty Fjällräven kånken backpack. I knew the camper would be light on storage for my large hardcase Rimowa checked luggage, but honestly I was completely freaked out about the time it might take to get through the covid-19 checks at the Arrivals at Keflavik airport after reading this [article](https://icelandmonitor.mbl.is/news/news/2021/08/09/passengers_arriving_in_iceland_stuck_in_line_for_ho/). I was arriving at 14:30 & needed to pick up my camper by 16:30 & was concerned about making it out of the airport in time. So I planned for carry-on only & even paid & booked a first row seat on the plane. This turned out to be unnecessary as there was no line of course when I arrived. 🙃
+
+I knew the temps would be cool but not unbearable, especially since I love cooler weather, so it was not necessary for me to bring a lot of items for layering. Also, I'm ok with washing underwear and shirts in the sink and letting them dry to rewear in order to save luggage space.
+
+![](https://user-images.githubusercontent.com/9959680/132045385-612e855b-042e-4e9a-a00a-33372d110383.JPEG)
+
+The most important non-clothing items I brought were my coffee making supplies! I'm a coffee enthusiast & daydreamed heavily about the moment each morning where I would prepare an aeropress coffee in the camper 😍.
+
+#### Pack list:
+
+- Coffee stuff:
+  - Aeropress
+  - Scoop
+  - Comandante grinder
+  - Snow peak titanium 450 mug
+  - Bonanza coffee beans
+- Art stuff:
+  - Watercolor palette
+  - Sketchbook
+  - Pens/Brush/Pencils
+- Camera Stuff:
+  - GoPro 4
+  - SD to USB-C adapter
+  - Ipad
+  - Instax camera
+  - Gorilla tripod + smartphone adapter
+- Snacks:
+  - 3 packs of vegan jerky
+  - Ritter sport pfefferminz
+  - Gobstoppers
+- 2 swimsuits
+- Dopper waterbottle
+- Lonely Planet "Iceland"
+- Clothing:
+  - 2 pairs lululemon wunderunder leggings
+  - lululemon long sleeve running shirt
+  - Github hoodie
+  - Ragged old denim jacket
+  - Beanie
+  - Underwear
+  - Couple t-shirts
+  - Couple pairs of socks
+  - Ripped jeans
+  - Adidas Terrex Free Hiker shoes
+  - Adidas basic sandals
+- Toiletries:
+  - Dr. Bronner's tea tree soap
+  - Shampoo
+  - Conditioner
+  - Face wash
+  - Night creme
+  - Day creme
+  - Retinol creme
+  - Toner
+  - BB cream
+  - Red & pink lip stains
+  - Eyebrow powder
+  - Mascara
+
+
+In retrospect, I hesitated & didn't pack a couple items that I would NOT forget the next time. They were:
+
+- Headlamp (for trips to bathroom in the night!)
+- Suncreen (for the sun in the northern part of the island!)
+
 
 ---
 
 ### How does camping work in Iceland?
+
+No reason or real way to book ahead, there will be spots available. Fees ranged from free (donation encouraged) to 20 euros. Most I stayed at were around 8 euros/night. You basically pick a spot & that's it really. You either pay when you arrive at a reception area or if no one is there, someone will show up in the morning & knock on your camper. Everywhere accepted card/contactless payments. If you need to pay for a washing machine or shower, be prepared with some coins.
 
 
 ---
