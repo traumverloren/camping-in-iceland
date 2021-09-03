@@ -131,7 +131,7 @@ I knew the temps would be cool but not unbearable, especially since I love coole
   - Eyebrow powder
   - Mascara
   - Deodorant
-  - Sprekenhuis Amber Infatuation travel perfume (I'm super extra what can I say? 💅)
+  - Sprekenhus Amber Infatuation travel perfume (I'm super extra what can I say? 💅)
 
 
 In retrospect, I hesitated & didn't pack a couple items that I would NOT forget the next time. They were:
