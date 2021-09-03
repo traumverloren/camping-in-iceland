@@ -25,20 +25,22 @@ Post-trip:
 
 ### How did I choose a camper rental?
 
+
+![A picnic spot on the Southeast coast](https://user-images.githubusercontent.com/9959680/132061841-a5331e61-aafb-49d4-9bdb-8306ff2a2cfd.jpg)
+
 Honestly, I didn't plan my trip planning to rent a camper van. I was thinking about staying in Reykjavik & take some tours out from there, then I decided I wanted to do the ring road around Iceland and looked at tour buses (ridiculously expensive), then getting a rental car & renting hotel rooms, then landed on getting a camper van since would probably be the most flexible option & honestly the most affordable for me traveling solo. 
 
 I rented my camper from [Happy Campers](https://happycampers.is/) after watching [this video](https://www.youtube.com/watch?v=RE1PQPCYbGg) of a woman solo camping in Iceland using their van. I felt like if it worked for her, it would work for me! There office is close to Keflavik International Airport & they offer a shuttle pickup from the airport every hour.
 
 I ended up choosing their [Happiest bundle](https://happycampers.is/campers/extras/) at an extra 60 euros/day to have the full insurance (including gravel/rock damage) coverage (& complete peace of mind) & any of their extras I'd like for the camper. I ended up adding a bluetooth portable speaker (was a great idea!), camp chair, camp table, & an extra sleeping bag to my camper.
 
-![](https://user-images.githubusercontent.com/9959680/132061841-a5331e61-aafb-49d4-9bdb-8306ff2a2cfd.jpg)
-![](https://user-images.githubusercontent.com/9959680/131900639-5db483dd-d396-4679-a518-59831edb6a88.jpg)
-![](https://user-images.githubusercontent.com/9959680/131902711-1fd1f8b1-abbf-430b-9ed4-cf8c52c4aa43.jpg)
+![My favorite gravel road, Route 54](https://user-images.githubusercontent.com/9959680/131900639-5db483dd-d396-4679-a518-59831edb6a88.jpg)
+![Camping on the very north of Iceland](https://user-images.githubusercontent.com/9959680/131902711-1fd1f8b1-abbf-430b-9ed4-cf8c52c4aa43.jpg)
 
 
 Of course, I checked out other camper rentals, but felt the Happer Camper setup for the [smallest van (Happy 1 Auto)](https://happycampers.is/camper/happy-1-auto/) (built-in "kitchen" with sink & fridge, foldup bed/couch, usb ports in the back of the van, heater!) & that wifi/gps is included in the rental was a great deal. The final thing that won me over was that I could get it with an automatic transmission!
 
-![](https://user-images.githubusercontent.com/9959680/132061988-5468662a-64fa-439b-b50e-e3a4f1c3227c.jpg)
+![Inside of camper with bed unfolded with ipad playing Downton Abbey](https://user-images.githubusercontent.com/9959680/132061988-5468662a-64fa-439b-b50e-e3a4f1c3227c.jpg)
 
 It is advertised as a 1-2 person camper. If you are planning to rent a small camper van like this for 2 people, beware that it is going to be cozy sleeping together & limited storage for 2 people in the van. Make sure you like spending a lot of close time together beforehand 😅. I felt it was great for one person though. I spent my evenings drinking hot chocolate and watching downton abbey on my ipad in bed as shown above . 🙃
 
