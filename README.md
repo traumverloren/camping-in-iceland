@@ -35,12 +35,16 @@ I rented my camper from [Happy Campers](https://happycampers.is/) after watching
 
 
 
-Of course, I checked out other camper rentals, but felt the Happer Camper setup for the [smallest van (Happy 1 Auto)](https://happycampers.is/camper/happy-1-auto/) (built-in "kitchen" with sink & fridge, foldup bed/couch, usb ports in the back of the van, heater!) & that wifi is included in the rental was a great deal. The final thing thing that won me over was that I could get it with an automatic transmission!
+Of course, I checked out other camper rentals, but felt the Happer Camper setup for the [smallest van (Happy 1 Auto)](https://happycampers.is/camper/happy-1-auto/) (built-in "kitchen" with sink & fridge, foldup bed/couch, usb ports in the back of the van, heater!) & that wifi/gps is included in the rental was a great deal. The final thing that won me over was that I could get it with an automatic transmission!
+
+It is advertised as a 1-2 person camper. If you are planning to rent a small camper van like this for 2 people, beware that it is going to be cozy sleeping together & limited storage for 2 people in the van. Make sure you like spending a lot of close time together beforehand 😅. I felt it was great for one person though.
 
 
 https://user-images.githubusercontent.com/9959680/131902507-43ab78ac-ef16-4b5c-88c4-a7c35154f731.mp4
 
 As you can see in my video above, I really fell in love with this little VW Caddy. (I named him Karl the camper, btw) It was easy to drive and as long as I didn't go on too rough of a gravel road (some campsite roads are brutal 😅) the 2WD little chariot was a dream to drive & live in for a week!
+
+I ended up paying for their [Happiest bundle](https://happycampers.is/campers/extras/) at an extra 60 euros/day to have the full insurance coverage (& peace of mind) & any extras I'd like for the camper. I ended up adding a bluetooth portable speaker (was a great idea!), camp chair, camp table, & an extra sleeping bag to my camper.
 
 ---
 
@@ -122,6 +126,8 @@ I knew the temps would be cool but not unbearable, especially since I love coole
   - Red & pink lip stains
   - Eyebrow powder
   - Mascara
+  - Deodorant
+  - Sprekenhuis Amber Infatuation travel perfume (I'm super extra what can I say? 💅)
 
 
 In retrospect, I hesitated & didn't pack a couple items that I would NOT forget the next time. They were:
@@ -129,6 +135,7 @@ In retrospect, I hesitated & didn't pack a couple items that I would NOT forget 
 - Headlamp (for trips to bathroom in the night!)
 - Nail glue (I have long beautiful natural nails, and the camping & hot bath soaks were brutal on my nails & I split a nail at end of the trip & paid heavily to find nail glue in a pharmacy to repair it!)
 - Suncreen (for the sun in the northern part of the island!)
+- AUX cable & iphone headphone adapter (The touchscreen of the infotainment system of the VW Caddy was unresponsive so I could not use BT to stream music & ended up driving all 7 days in silence 😧)
 
 
 ---
