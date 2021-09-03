@@ -21,6 +21,8 @@ Post-trip:
 
 ---
 
+## Pre-trip planning:
+
 ### How did I choose a camper rental?
 
 Honestly, I didn't plan my trip planning to rent a camper van. I was thinking about staying in Reykjavik & take some tours out from there, then I decided I wanted to do the ring road around Iceland and looked at tour buses (ridiculously expensive), then getting a rental car & renting hotel rooms, then landed on getting a camper van since would probably be the most flexible option & honestly the most affordable for me traveling solo. 
@@ -69,6 +71,8 @@ During the trip, I spent a lot of time checking the google reviews and photos of
 
 
 ---
+
+## Post-trip:
 
 
 ### My completed itinerary
