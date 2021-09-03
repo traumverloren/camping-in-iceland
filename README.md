@@ -113,6 +113,7 @@ I knew the temps would be cool but not unbearable, especially since I love coole
   - Ripped jeans
   - Adidas Terrex Free Hiker shoes
   - Adidas basic sandals
+  - Lululemon hooded rain jacket
 - Toiletries:
   - Dr. Bronner's tea tree soap
   - Shampoo
