@@ -1,5 +1,7 @@
 # My Guide to Solo Camping in Iceland 🇮🇸
 
+Doing a solo camping trip in Iceland is a brilliant idea if you are a person (especially a woman) that has been interested in tackling traveling or camping alone. Iceland is relatively safe & if you have a driver's license and not scared of driving on some gravel roads or one-lane bridges, it's a beautiful country to explore. ✨
+
 ![](https://user-images.githubusercontent.com/9959680/131901170-5d0b9bb9-b2aa-450f-8a9f-13230ab0290d.JPG)
 
 
