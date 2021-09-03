@@ -44,7 +44,7 @@ As you can see in my video above, I really fell in love with this little VW Cadd
 
 ### How did I plan my itinerary?
 
-Honestly figuring out my ruote was my biggest stress going into the trip. I knew I wanted do a clockwise loop around the island and hit several geothermal baths & see cool land formations. I basically focused on main tourist sites in [this google map I created](https://www.google.com/maps/d/u/0/edit?mid=1YV8FF4ZWxXEUkmTUc94H3E1EFlFTJ6ov&usp=sharing) & then cross-referenced with these campsite google maps:
+Honestly figuring out my route was my biggest stress going into the trip. I knew I wanted do a clockwise loop around the island and hit several geothermal baths & see cool land formations. I basically focused on main tourist sites in [this google map I created](https://www.google.com/maps/d/u/0/edit?mid=1YV8FF4ZWxXEUkmTUc94H3E1EFlFTJ6ov&usp=sharing) & then cross-referenced with these campsite google maps:
 
 - [Happy Campers Campsite Guide](https://www.google.de/maps/@64.9072787,-21.9859533,6z/data=!3m1!4b1!4m2!6m1!1s1wk_t105qo4BYqaBL7xTcLUz5uXQ)
 - [Campsite of Iceland](https://www.google.de/maps/@64.6605078,-24.8965918,5z/data=!3m1!4b1!4m2!6m1!1s1gJV0ZEEDYENMWKp4hvMoeEpDQycW9IHd)
