@@ -134,6 +134,8 @@ In retrospect, I hesitated & didn't pack a couple items that I would NOT forget 
 
 ### How does camping work in Iceland?
 
+No reason or real way to book ahead, there will be spots available. Fees ranged from free (donation encouraged) to 20 euros. Most I stayed at were around 8 euros/night. You basically pick a spot & that's it really. You either pay when you arrive at a reception area or if no one is there, someone will show up in the morning & knock on your camper. Everywhere accepted card/contactless payments. If you need to pay for a washing machine or shower, be prepared with some coins.
+
 
 ---
 
