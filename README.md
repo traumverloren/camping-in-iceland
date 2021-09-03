@@ -70,7 +70,7 @@ I knew the temps would be cool but not unbearable, especially since I love coole
 
 ![](https://user-images.githubusercontent.com/9959680/132045385-612e855b-042e-4e9a-a00a-33372d110383.JPEG)
 
-The most important non-clothing items I brought were my coffee making supplies! I'm a coffee enthusiast & daydreamed heavily about the moment each morning where I would prepare an aeropress coffee in the camper 😍.
+**The most important non-clothing items I brought were my coffee making supplies! I'm a coffee enthusiast ☕ & daydreamed heavily about the moment each morning where I would prepare an aeropress coffee in the camper 😍.**
 
 #### Pack list:
 
@@ -127,7 +127,7 @@ The most important non-clothing items I brought were my coffee making supplies! 
 In retrospect, I hesitated & didn't pack a couple items that I would NOT forget the next time. They were:
 
 - Headlamp (for trips to bathroom in the night!)
-- Nail glue (I have long beautiful natural nails, but the camping & hot bath soaks were brutal on my nails & I split a nail at end of the trip & paid heavily to find nail glue to repair it during the trip!)
+- Nail glue (I have long beautiful natural nails, and the camping & hot bath soaks were brutal on my nails & I split a nail at end of the trip & paid heavily to find nail glue in a pharmacy to repair it!)
 - Suncreen (for the sun in the northern part of the island!)
 
 
