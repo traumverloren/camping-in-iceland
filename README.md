@@ -214,7 +214,7 @@ https://user-images.githubusercontent.com/9959680/132095983-fa368796-526a-4e15-b
 
 - It was a primitive (only 2 toilets & outdoor sink) and quiet campground with only a few other campers there overnight. There was no office to pay at, but a nice lady showed up in the morning at the main house & walked over to my camper in the morning so I could pay. This was my favorite campground of the entire trip and would 10000% go back to stay 1-2 more nights.
 
-![IMG_3523](https://user-images.githubusercontent.com/9959680/132097369-5c3338a0-2552-4b65-b59f-8f8959ddede6.jpg)
+![IMG_3523](https://user-images.githubusercontent.com/9959680/132097389-e5ac31b2-a3fc-46cd-9628-01f5c9ddcc79.jpg)
 ![IMG_3567](https://user-images.githubusercontent.com/9959680/132095775-7ce1a959-aeaa-42a0-90d7-d8eb581124a8.jpg)
 
 
