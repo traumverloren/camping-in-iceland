@@ -155,15 +155,13 @@ My camper van came with a large water reservoir container that was hooked up to 
 
 ---
 
-## Post-trip:
 
-
-### My completed itinerary
+## My completed itinerary
 
 ![Cute map of iceland showing roughly my driving route for each of the 8 days I had the camper](https://user-images.githubusercontent.com/9959680/132092660-2e05531f-7255-432e-b137-7cd825621121.jpg)
 
 
-#### Day 1: Arrival
+### Day 1: Arrival
 
 - Picked up the camper van
 - Went to the nearest Kronan & bought groceries. I opted to mainly eat sandwiches during the trip to minimize how much different food I bought. I "splurged" on Honey Nut Cheerios & Swiss Miss hot cocoa as I miss this stuff from the US. The only thing I really cooked during the trip was eggs.
@@ -174,6 +172,7 @@ My camper van came with a large water reservoir container that was hooked up to 
 - Drove **2 hours (143km)** to my first campground, [Snorrastaðir Farm](https://snorrastadir.is/) in Borgarnes.
 
 ![IMG_3383](https://user-images.githubusercontent.com/9959680/132093315-c186b4c9-3db0-49a7-995a-9d403cdaf871.jpg)
+![IMG_3426](https://user-images.githubusercontent.com/9959680/132095136-9f3404c8-7aa9-4470-b392-f072e028de68.jpg)
 
 - This campground was the priciest of the entire trip at ~20 euros. But, it had great facilities (Huge indoor kitchen/dining area, hot private showers) & I could pay at the reception upon arrival. It wasn't busy so it was a great first night camping experience.
 
@@ -181,13 +180,50 @@ My camper van came with a large water reservoir container that was hooked up to 
 ![IMG_3421](https://user-images.githubusercontent.com/9959680/132093326-198b45f0-8748-4962-b4a9-ae03afc65da3.jpg)
 ![IMG_3423](https://user-images.githubusercontent.com/9959680/132093435-20097419-ffc4-447f-b4e6-9a71bf4c7061.jpg)
 
+### Day 2: Snæfellsnes Peninsula
 
+- Drove around the entire Snæfellsnes Peninsula
+- Stopped at [Búðakirkja](https://www.atlasobscura.com/places/budakirkja), [Gatklettur](https://guidetoiceland.is/travel-iceland/drive/gatklettur), [Kirkjufellsfoss](https://guidetoiceland.is/connect-with-locals/regina/mt-kirkjufell-kirkjufellsfoss-in-grundarfjoerdur-the-most-popular-mountain-on-the-snaefellsnes-peninsula)
+
+![IMG_3428](https://user-images.githubusercontent.com/9959680/132095154-76c89769-c085-4241-ae79-f297087f19e7.jpg)
+![IMG_3430](https://user-images.githubusercontent.com/9959680/132095157-b609fc68-3237-4c8e-bc1a-afaed4d5c309.jpg)
+![IMG_3434](https://user-images.githubusercontent.com/9959680/132095158-0645841c-91e0-4ae4-8fd0-8c94bc89faed.jpg)
+![IMG_3449](https://user-images.githubusercontent.com/9959680/132095168-790bf33d-26bc-47a4-ae8b-8f3e574ac146.JPG)
+![IMG_3461](https://user-images.githubusercontent.com/9959680/132095171-a7453f02-5af9-4fd3-9432-1081403d29af.jpg)
+
+
+- Accidently drove past some beaches I wanted to stop at, but kept going forward.
+
+![IMG_3493](https://user-images.githubusercontent.com/9959680/132095296-05791779-2465-4fec-a342-dbe75c5be910.jpg)
+
+
+- One of my favorite parts of the trip was taking **Rte 54** which is a rougher dirt road between the peninsula and Northwest Iceland. It loops around the fjords & is fairly desolate with very little traffic. It was marvelous. I stopped at a picnic pullover & watercolored in my travel journal for a while. It was windy, cool & moody. I love it.
+
+![](https://user-images.githubusercontent.com/9959680/131901170-5d0b9bb9-b2aa-450f-8a9f-13230ab0290d.JPG)
+
+
+- I drove to the [Illugastadir Campground](https://guidetoiceland.is/travel-iceland/drive/illugastadir-1) on the northwestern coast for Night 2. It is a seal viewing spot and the site has a dramatic backstory of jilted lovers stabbing & burning a man in the house on the site. The murderers were beheaded & their heads put on stakes. It was the last public execution in Iceland.
+
+![IMG_3571](https://user-images.githubusercontent.com/9959680/132095763-c14452f5-8fdc-4445-aba4-aab9ee096fbb.jpg)
+![IMG_3561](https://user-images.githubusercontent.com/9959680/132095876-3ea591e1-eebf-4baa-a6aa-f96ce257cdd1.jpg)
+
+https://user-images.githubusercontent.com/9959680/132095767-8102f6ab-0e40-4627-9023-2f83fe053603.mp4
+
+
+- It was a primitive (only 2 toilets & outdoor sink) and quiet campground with only a few other campers there overnight. This was my favorite campground of the entire trip and would 10000% go back to stay 1-2 more nights.
+
+![IMG_3567](https://user-images.githubusercontent.com/9959680/132095775-7ce1a959-aeaa-42a0-90d7-d8eb581124a8.jpg)
+
+
+- Total driving time for Day 2 was **5 hours (360 km)**.
+
+### Day 3: 
 
 
 ---
 
-### My favorite moments
+## My favorite moments
 
 ---
 
-### What's next?
+## What's next?
