@@ -92,7 +92,7 @@ I knew the temps would be cool but not unbearable, especially since I love coole
   - Sketchbook
   - Pens/Brush/Pencils
 - Camera Stuff:
-  - GoPro 4
+  - GoPro 4 w/ floating selfie stick (No way i'm risking taking selfies in the hot baths w/ my iphone that has my vaccination documentation on it)
   - SD to USB-C adapter
   - Ipad
   - Instax camera
@@ -104,6 +104,7 @@ I knew the temps would be cool but not unbearable, especially since I love coole
 - 2 swimsuits
 - Dopper waterbottle
 - Lonely Planet "Iceland"
+- Face towel
 - Clothing:
   - 2 pairs lululemon wunderunder leggings
   - lululemon long sleeve running shirt
@@ -150,6 +151,7 @@ It is extremely illegal to camp outside of a campground in Iceland. Do not do th
 
 No reason or real way to book ahead, there will be spots available. Fees ranged from free (donation encouraged) to 20 euros. Most I stayed at were around 8 euros/night. You basically pick a spot & that's it really. You either pay when you arrive at a reception area or if no one is there, someone will show up in the morning & knock on your camper. Everywhere accepted card/contactless payments. If you need to pay for a washing machine or shower, be prepared with some coins.
 
+My camper van came with a large water reservoir container that was hooked up to the sink and functioned as my drinking water during the trip. Most campgrounds have an outdoor faucet with hose that you can use to refill your water reservoir.
 
 ---
 
@@ -157,6 +159,30 @@ No reason or real way to book ahead, there will be spots available. Fees ranged 
 
 
 ### My completed itinerary
+
+![Cute map of iceland showing roughly my driving route for each of the 8 days I had the camper](https://user-images.githubusercontent.com/9959680/132092660-2e05531f-7255-432e-b137-7cd825621121.jpg)
+
+
+#### Day 1: Arrival
+
+- Picked up the camper van
+- Went to the nearest Kronan & bought groceries. I opted to mainly eat sandwiches during the trip to minimize how much different food I bought. I "splurged" on Honey Nut Cheerios & Swiss Miss hot cocoa as I miss this stuff from the US. The only thing I really cooked during the trip was eggs.
+
+![IMG_3375](https://user-images.githubusercontent.com/9959680/132093302-c6f76302-3732-4412-9c1e-8ee80ef6ff0f.jpg)
+![IMG_3376](https://user-images.githubusercontent.com/9959680/132093305-a1230451-1704-45df-a32b-1d96681c7a50.jpg)
+
+- Drove **2 hours (143km)** to my first campground, [Snorrastaðir Farm](https://snorrastadir.is/) in Borgarnes.
+
+![IMG_3383](https://user-images.githubusercontent.com/9959680/132093315-c186b4c9-3db0-49a7-995a-9d403cdaf871.jpg)
+
+- This campground was the priciest of the entire trip at ~20 euros. But, it had great facilities (Huge indoor kitchen/dining area, hot private showers) & I could pay at the reception upon arrival. It wasn't busy so it was a great first night camping experience.
+
+![IMG_3385](https://user-images.githubusercontent.com/9959680/132093325-be28cbd1-9d73-4349-bbf1-42c32ce5e6bf.jpg)
+![IMG_3421](https://user-images.githubusercontent.com/9959680/132093326-198b45f0-8748-4962-b4a9-ae03afc65da3.jpg)
+![IMG_3423](https://user-images.githubusercontent.com/9959680/132093435-20097419-ffc4-447f-b4e6-9a71bf4c7061.jpg)
+
+
+
 
 ---
 
