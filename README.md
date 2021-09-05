@@ -223,7 +223,8 @@ https://user-images.githubusercontent.com/9959680/132095983-fa368796-526a-4e15-b
 - It was amazing to wake up at this campground with the view of the sea and have my morning coffee.
 
 ![IMG_3561](https://user-images.githubusercontent.com/9959680/132095876-3ea591e1-eebf-4baa-a6aa-f96ce257cdd1.jpg)
-![IMG_3604](https://user-images.githubusercontent.com/9959680/132130084-17972ecb-1f5c-4954-bfab-f99e61d12ef9.JPG)
+![IMG_3604](https://user-images.githubusercontent.com/9959680/132133583-15501050-d69e-40d0-8337-9f17f53245b0.JPG)
+
 
 - Drove to see [Hvitserkur](https://guidetoiceland.is/travel-iceland/drive/hvitserkur) rock formation off the coast nearby. It is beautiful! It was even possible to scramble down the rocks to the beach, but I did not take this risk since I was alone. It was dreamy to look at. The entire route to Illugastadir & Hvitserkur is a gravel road with lots of sheep to look out for. 
 
