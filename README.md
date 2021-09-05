@@ -253,7 +253,7 @@ https://user-images.githubusercontent.com/9959680/132131587-b990ecc8-bf53-4bc3-8
 ![IMG_3661](https://user-images.githubusercontent.com/9959680/132131883-4faaf1ed-6a60-46dd-bc16-4133cf4d3ddf.JPG)
 
 
-- After I soaked and then took a nice shower there, I drove up to my campsite for this evening. At the top of the fjord is a beautiful (but slightly popular) campground. It's easy to see why it's popular, I could camp directly on the sea. The campground also had a kitchen, washing machines, showers and indoor bathrooms. The host was super friendly & he took the camping fee on arrival.
+- After I soaked and then took a nice shower there, I drove up to [Camping 66.12](https://www.facebook.com/camping66.12) to camp overnight. It is located at the top of the fjord and is a beautiful (but slightly popular) campground. It's easy to see why it's popular, I could camp directly on the sea. The campground also had a kitchen, washing machines, showers and indoor bathrooms. The host was super friendly & he took the camping fee on arrival.
 
 ![IMG_3650](https://user-images.githubusercontent.com/9959680/132131905-c6a095a0-a6ec-4cb7-8ff3-13ebf5728b53.JPG)
 ![IMG_3652](https://user-images.githubusercontent.com/9959680/132131907-db963397-c64c-4731-b4b9-5cc2514a096e.JPG)
