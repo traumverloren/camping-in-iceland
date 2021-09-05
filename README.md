@@ -205,14 +205,12 @@ My camper van came with a large water reservoir container that was hooked up to 
 - I drove to the [Illugastadir Campground](https://guidetoiceland.is/travel-iceland/drive/illugastadir-1) on the northwestern coast for Night 2. It is a seal viewing spot and the site has a dramatic backstory of jilted lovers stabbing & burning a man in the house on the site. The murderers were beheaded & their heads put on stakes. It was the last public execution in Iceland.
 
 ![IMG_3571](https://user-images.githubusercontent.com/9959680/132095763-c14452f5-8fdc-4445-aba4-aab9ee096fbb.jpg)
-![IMG_3561](https://user-images.githubusercontent.com/9959680/132095876-3ea591e1-eebf-4baa-a6aa-f96ce257cdd1.jpg)
-
 
 https://user-images.githubusercontent.com/9959680/132095983-fa368796-526a-4e15-bd91-2e6c13661755.mov
 
 
 
-- It was a primitive (only 2 toilets & outdoor sink) and quiet campground with only a few other campers there overnight. There was no office to pay at, but a nice lady showed up in the morning at the main house & walked over to my camper in the morning so I could pay. This was my favorite campground of the entire trip and would 10000% go back to stay 1-2 more nights.
+- It was a primitive (only 2 toilets & an outdoor sink) and quiet campground with only a few other campers there overnight. There was no office to pay at, but a nice lady showed up in the morning at the main house & walked over to my camper in the morning so I could pay. This was my favorite campground of the entire trip and would 10000% go back to stay 1-2 more nights.
 
 ![IMG_3523](https://user-images.githubusercontent.com/9959680/132097389-e5ac31b2-a3fc-46cd-9628-01f5c9ddcc79.jpg)
 ![IMG_3567](https://user-images.githubusercontent.com/9959680/132095775-7ce1a959-aeaa-42a0-90d7-d8eb581124a8.jpg)
@@ -220,7 +218,38 @@ https://user-images.githubusercontent.com/9959680/132095983-fa368796-526a-4e15-b
 
 - Total driving time for Day 2 was **5 hours (360 km)**.
 
-### Day 3: 
+### Day 3:
+
+- It was amazing to wake up at this campground with the view of the sea and have my morning coffee.
+
+![IMG_3561](https://user-images.githubusercontent.com/9959680/132095876-3ea591e1-eebf-4baa-a6aa-f96ce257cdd1.jpg)
+![IMG_3604](https://user-images.githubusercontent.com/9959680/132130084-17972ecb-1f5c-4954-bfab-f99e61d12ef9.JPG)
+
+- Drove to see [Hvitserkur](https://guidetoiceland.is/travel-iceland/drive/hvitserkur) rock formation off the coast nearby. It is beautiful! It was even possible to scramble down the rocks to the beach, but I did not take this risk since I was alone. It was dreamy to look at. The entire route to Illugastadir & Hvitserkur is a gravel road with lots of sheep to look out for. 
+
+SHEEP VIDEO
+
+- Drove a long stretch through northern Iceland to make it to Akureyri. This is the second largest city in Iceland. 
+
+VIDEO OF PANORAMA
+
+- I stopped in Akureyri for fuel top-up & few groceries (fresh veg & bananas & found bonus cheetos :heart_eyes:)
+- To keep driving east from here, there's a toll [tunnel](tunnel.is) that you need to pay online within 3 hours prior or after driving through it! It's the only toll like this in Iceland, so don't forget to pay it!
+
+TUNNEL PIC
+
+- I drove to [Goðafoss](https://guidetoiceland.is/travel-iceland/drive/godafoss), which is a beautiful waterfall right on Rte 1. While I was there I watch 3 brave kayakers go over it successfully! It was really fun to watch them.
+
+GODAFOSS VIDEO
+
+- I now headed north to Húsavík, which is internationally known as a great place to go whalewatching. It was also popularized by the comedy film, [Eurovision Song Contest: The Saga of Fire Island](https://www.youtube.com/watch?v=qjuphuG3ndw) starring Will Ferrell. It's a real place! :) I stopped in town to visit the first thermal baths of my trip.
+
+Geosea pics
+
+- Geosea - hot / pretty
+- After I soaked and then took a nice shower there, I drove up to my campsite for this evening. At the top of the fjord is a beautiful (but slightly popular) campground. It's easy to see why it's popular, I could camp directly on the sea. The campground also had a kitchen, washing machines, showers and indoor bathrooms. The host was super friendly & he took the camping fee on arrival.
+
+- Total driving time for Day 3 was ** hours ( km)**.
 
 
 ---
