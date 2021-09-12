@@ -16,6 +16,11 @@ Pre-trip:
 Post-trip:
 
 - [My completed itinerary](#my-completed-itinerary)
+  - [Day 1: Arrival](#day-1-arrival) 
+  - [Day 2: Snæfellsnes Peninsula](#day-2-snæfellsnes-peninsula)
+  -  [Day 3: ](#day-3)
+  -  [Day 4: ](#day-4)
+  -  [Day 5: ](#day-5)
 - [My favorite moments](#my-favorite-moments)
 - [What's next?](#whats-next)
 
