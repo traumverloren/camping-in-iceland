@@ -273,16 +273,16 @@ https://user-images.githubusercontent.com/9959680/132133315-888a36b0-1ed2-45e3-a
 ![IMG_3678](https://user-images.githubusercontent.com/9959680/132984573-364f240d-ca01-4951-863a-13a503ea7700.JPG)
 ![IMG_3684](https://user-images.githubusercontent.com/9959680/132984575-ead3ca5e-a366-49bb-a046-37a2e1230cd6.JPG)
 
-- Highlight of the day was soaking at Mývatn baths. The baths have fantastic views of Lake Mývatn & Hverfjall and the soft light blue colored mineral rich water. Beware a lot of bus tour groups stop here so it was quite busy when I went. But the bonus to this was there was a group of boomer women from Texas that showed up and were loud and colorful and taking lots of selfies of each other while giving tips on how to take hotter selfies (chin angles, using another app to retouch wrinkles :D) and it was super fun to eavesdrop them & literally lol from it :).
+- Highlight of the day was soaking at [Mývatn baths](https://myvatnnaturebaths.is/?lang=enhttps://myvatnnaturebaths.is/?lang=en). The baths have fantastic views of Lake Mývatn & Hverfjall and the soft light blue colored mineral rich water. Beware a lot of bus tour groups stop here so it was quite busy when I went. But the bonus to this was there was a group of boomer women from Texas that showed up and were loud and colorful and taking lots of selfies of each other while giving tips on how to take hotter selfies (chin angles, using another app to retouch wrinkles :D) and it was super fun to eavesdrop them & literally lol from it :).
 
 ![IMG_4447 2](https://user-images.githubusercontent.com/9959680/132985676-02951bf4-cfa6-4e04-ac85-81e97f79260f.jpg)
 
 
-- After the baths, I drove A LOT. I again skipped some attractions - Krafla crater & Dettifoss waterfall. It was buggy & raining intermittently & I was worried about driving a long distncne to the southeastern part of Iceland to camp for the night so I opted to skip the detours to visit them.
+- After the baths, I drove A LOT. I again skipped some attractions - Krafla crater & Dettifoss waterfall. It was buggy & raining intermittently & I was worried about driving a long distance to the southeastern part of Iceland to camp for the night so I opted to skip the detours to visit them.
 
 ![IMG_3693](https://user-images.githubusercontent.com/9959680/132984968-a2a660dd-cbc2-4818-8193-f36dde8c8434.JPG)
 
-- I camped at Fossardalur Campsite in the southeast. Wonderful campsite with friendly host and wifi (needed it as mobile service was shit). But it was quite busy with families since it has indoor bathrooms and showers.
+- I camped at [Fossardalur Campsite](https://www.google.de/maps/place/Fossardalur+Campsite/@64.7557916,-14.5007767,17z/data=!3m1!4b1!4m8!3m7!1s0x48cec00df46e3e31:0xd42bda8a82eae65d!5m2!4m1!1i2!8m2!3d64.7557916!4d-14.498588) in the southeast. Wonderful campsite with friendly host and wifi (needed it as mobile service was shit). But it was quite busy with families since it has indoor bathrooms and showers.
 
 ![IMG_3704](https://user-images.githubusercontent.com/9959680/132985449-0c8ed8c7-706f-4d8f-9007-20c23bee4744.JPG)
 ![IMG_3708](https://user-images.githubusercontent.com/9959680/132985454-2f581b23-967e-4f98-a1ef-2f3f4ea64df5.JPG)
