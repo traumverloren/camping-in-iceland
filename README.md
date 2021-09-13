@@ -18,9 +18,12 @@ Post-trip:
 - [My completed itinerary](#my-completed-itinerary)
   - [Day 1: Arrival](#day-1-arrival) 
   - [Day 2: Snæfellsnes Peninsula](#day-2-snæfellsnes-peninsula)
-  -  [Day 3: ](#day-3)
-  -  [Day 4: ](#day-4)
-  -  [Day 5: ](#day-5)
+  - [Day 3: Northern Iceland & Húsavík](#day-3-northern-iceland-húsavík)
+  - [Day 4: Mývatn & Eastern Iceland](#day-4-mývatn-eastern-iceland)
+  - [Day 5: Southern Iceland](#day-4-southern-iceland)
+  - [Day 6: Golden Circle & Secret Lagoon](#day-6-golden-circle-secret-lagoon)
+  - [Day 7: Snorkeling at Silfra](#day-7-snorkeling-at-silfra)
+  - [Day 8: Blue Lagoon](#day-8-blue-lagoon)
 - [My favorite moments](#my-favorite-moments)
 - [What's next?](#whats-next)
 
@@ -223,7 +226,7 @@ https://user-images.githubusercontent.com/9959680/132095983-fa368796-526a-4e15-b
 
 - Total driving time for Day 2 was **5 hours (360 km)**.
 
-### Day 3:
+### Day 3: Northern Iceland & Húsavík
 
 - It was amazing to wake up at this campground with the view of the sea and have my morning coffee.
 
@@ -266,7 +269,7 @@ https://user-images.githubusercontent.com/9959680/132131587-b990ecc8-bf53-4bc3-8
 
 - Total driving time for Day 3 was **4.5 hours (333 km)**.
 
-### Day 4:
+### Day 4: Mývatn & Eastern Iceland 
 
 - Woke up and made coffee in one of the most beautiful spots in Iceland overlooking the Greenland Sea :)
 
@@ -295,7 +298,22 @@ https://user-images.githubusercontent.com/9959680/132133315-888a36b0-1ed2-45e3-a
 
 - Total driving time for Day 4 was **5 hours (390 km)**.
 
-### Day 5:
+### Day 5: Southern Iceland
+
+- This was my longest & most tiresome driving day.
+
+
+### Day 6: Golden Circle & Secret Lagoon
+
+- This was my longest & most tiresome driving day.
+
+
+### Day 7: Snorkeling at Silfra
+
+- This was my longest & most tiresome driving day.
+
+
+### Day 8: Blue Lagoon
 
 - This was my longest & most tiresome driving day.
 
