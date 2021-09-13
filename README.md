@@ -300,22 +300,67 @@ https://user-images.githubusercontent.com/9959680/132133315-888a36b0-1ed2-45e3-a
 
 ### Day 5: Southern Iceland
 
-- This was my longest & most tiresome driving day.
+- This was my longest & most tiresome driving day. I felt the pressure of my driving days coming to a close in a couple of days and I wanted to plan for a last minute decision to go snorkeling at Silfra on the 7th day, so I knew I had to get a big chunk of driving done today. In retrospect, this section of Iceland is gorgeous with black sand beaches and waterfalls to expore & I ended up skipping some sights I wanted to see. Definitely coming back here with several days to slowly explore this area in the future.
+
+https://user-images.githubusercontent.com/9959680/133134439-09d6c2b9-29c0-4e76-b074-026c4d2bc82d.mp4
+
+- The drive started out super sunny! I skipped [Djúpavogskörin Natural Geothermal Pool](https://www.google.com/maps/place/Dj%C3%BApavogsk%C3%B6rin+Natural+Geothermal+Pool/@64.6539378,-14.3434785,17z/data=!3m1!4b1!4m5!3m4!1s0x48cec304bc744d6b:0xc0e2cd45ef94cb2e!8m2!3d64.6539378!4d-14.3412898?hl=en-US) that was nearby my campsite to see other sites. Would have stopped I had time L(
+- I approached dense fog. I went through a mountain tunnel at Vestrahorn Mountain & ended up in dense fog on the other side! I was going to visit the beach at [Stokksnes](https://guidetoiceland.is/travel-iceland/drive/stokksnes) but was deterred that I'd much out of it in the fog, so kept going.
+
+![IMG_3730](https://user-images.githubusercontent.com/9959680/133135406-8f85e121-d03c-4ec8-9298-3651cc4edbd6.JPG)
+![IMG_3732](https://user-images.githubusercontent.com/9959680/133135410-efe25173-19f4-40d9-a649-82f258879e63.JPG)
+
+- Next stop was [Jökulsárlón Glacier Lagoon](https://www.livefromiceland.is/webcams/jokulsarlon/) & Diamond Beach. WOW. I could spend hours here immersed in the natural beauty.
+
+
+![IMG_3741](https://user-images.githubusercontent.com/9959680/133139051-fbdb5dfe-94f7-4106-a8f2-724eff48ef14.JPG)
+
+
+- I felt like I was walking into a fantasy world when I stepped onto a misty moody Diamond Beach with gorgeous giant glowing blue glacier chunks scattered on the black sands. Truly one of the most ✨ magical ✨ experiences with nature in my life.
+
+
+https://user-images.githubusercontent.com/9959680/133137069-4e440561-4c48-42ce-a823-e9f19f9060a0.mp4
+
+- I accidently drove past a beautiful winding canyon, [Fjaðrárgljúfur](https://goo.gl/maps/sYTizUZ3sgSQhpFi9), I wanted to see. Oops 🤦.
+- I stopped in Vik to get a nice coffee and some beans to take home with me at [Skool Beans](https://g.page/Skoolbeans). It's a cute little coffee spot inside a yellow school bus.
+
+![IMG_3789](https://user-images.githubusercontent.com/9959680/133138440-79b05714-2e9e-4564-bd76-3ed922a6cc2e.JPG)
+![IMG_3786](https://user-images.githubusercontent.com/9959680/133138432-db5c798f-2386-4ebb-97e9-d5c91dd82ef4.JPG)
+
+- Right outside of Vik is [Reynisfjara Beach](https://guidetoiceland.is/travel-iceland/drive/reynisfjara) with black sands and towering basalt rock. It's very important to not turn your back on the waves here, people have been swept off their feet by the brutal waves and killed.
+
+https://user-images.githubusercontent.com/9959680/133137059-fea57365-cf81-4031-9b42-7cd7f2d788b5.mp4
+
+
+- I completely blanked out again when driving and drove past the Black Sand Beach & [Sólheimasandur Plane Wreckage](https://goo.gl/maps/6edTgi6CdH8pJ4VN7)! Ugh!
+- Stopped at beautiful [Skógafoss Waterfall](https://guidetoiceland.is/connect-with-locals/regina/the-beautiful-skogafoss-waterfall-and-the-legend-of-the-treasure-chest).
+
+![IMG_3801](https://user-images.githubusercontent.com/9959680/133139682-dec2e8ac-eb98-4f31-8d42-bd881cc7bcfe.JPG)
+
+- Finally ended up camping at the deserted [Álfaskeið campground](https://goo.gl/maps/6sNx75sieDZ5CUjN8) near Flúðir. It was a bit sketchy to drive up the entrance with my little 2WD camper and I had a moment where I thought I might have gotten the camper stuck, but it ended up being a super quiet and pastoral setting for camping. I was exhausted and crashed hard this night.
+
+
+https://user-images.githubusercontent.com/9959680/133140577-453e3927-edef-4c79-9add-ca8dfee743a5.mp4
+
+
+
+
+- Total driving time for Day 4 was **7 hours (530 km)**.
+
 
 
 ### Day 6: Golden Circle & Secret Lagoon
 
-- This was my longest & most tiresome driving day.
+
 
 
 ### Day 7: Snorkeling at Silfra
 
-- This was my longest & most tiresome driving day.
 
 
 ### Day 8: Blue Lagoon
 
-- This was my longest & most tiresome driving day.
+
 
 ---
 
