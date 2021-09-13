@@ -20,7 +20,7 @@ Post-trip:
   - [Day 2: Snæfellsnes Peninsula](#day-2-snæfellsnes-peninsula)
   - [Day 3: Northern Iceland & Húsavík](#day-3-northern-iceland--húsavík)
   - [Day 4: Mývatn & Eastern Iceland](#day-4-mývatn--eastern-iceland)
-  - [Day 5: Southern Iceland](#day-4-southern-iceland)
+  - [Day 5: Southern Iceland](#day-5-southern-iceland)
   - [Day 6: Golden Circle & Secret Lagoon](#day-6-golden-circle--secret-lagoon)
   - [Day 7: Snorkeling at Silfra](#day-7-snorkeling-at-silfra)
   - [Day 8: Blue Lagoon](#day-8-blue-lagoon)
