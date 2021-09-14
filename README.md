@@ -4,8 +4,9 @@ Doing a solo camping trip in Iceland is a brilliant idea if you are a person (es
 
 ![](https://user-images.githubusercontent.com/9959680/131901170-5d0b9bb9-b2aa-450f-8a9f-13230ab0290d.JPG)
 
+During the entire trip I listened to [Low Roar](http://www.lowroarmusic.com/)'s album, [0](https://open.spotify.com/album/4G3ZBFg8MpTSDxDQ3m2BCb) on repeat.  It was recorded in Reykjavík and the iconic Japanese video game creator, Hideo Kojima, heard Low Roar’s 0 playing while visiting a record store in Reykjavík and became obsessed and listened to it on repeat daily. Two of the songs are on the soundtrack for Death Stranding. I'm completely obsessed with the song ["Please don't stop (Chapter 1)"](https://www.youtube.com/watch?v=h232B2wjE2s).
 
-Pre-trip:
+## Pre-trip:
 
 - [How did I choose a camper rental?](#how-did-i-choose-a-camper-rental)
 - [How did I plan my itinerary?](#how-did-i-plan-my-itinerary)
@@ -13,7 +14,7 @@ Pre-trip:
 - [How does camping work in Iceland?](#how-does-camping-work-in-iceland)
 
 
-Post-trip:
+## Post-trip:
 
 - [My completed itinerary](#my-completed-itinerary)
   - [Day 1: Arrival](#day-1-arrival) 
@@ -24,6 +25,7 @@ Post-trip:
   - [Day 6: Golden Circle & Secret Lagoon](#day-6-golden-circle--secret-lagoon)
   - [Day 7: Snorkeling at Silfra](#day-7-snorkeling-at-silfra)
   - [Day 8: Blue Lagoon](#day-8-blue-lagoon)
+  - [Day 9-10: Reykjavík](#day-8-9-reykjavík)
 - [What's next?](#whats-next)
 
 ---
@@ -404,6 +406,28 @@ https://user-images.githubusercontent.com/9959680/133315919-a6699a6e-1309-4f3a-b
 
 ### Day 8: Blue Lagoon
 
+- It's my last day and I was emotional about my camping trip coming to an end since it had been the most magical 8 days by myself in my life.
+- I made coffee in the camper and then drove to the famous Blue Lagoon. 
+
+https://user-images.githubusercontent.com/9959680/133317355-9504b89a-2c6f-4735-89d4-23107af9a42c.mp4
+
+
+- It was stormy and windy and lots of tourists there, but Blue Lagoon is beautiful. ✨
+
+![IMG_4073](https://user-images.githubusercontent.com/9959680/133317440-0183f114-fdd9-48c8-92cb-ba85e1f3f1e1.JPG)
+
+
+### Day 8-9: Reykjavík
+
+- After I returned the camper, I took a taxi into Reykjavík to stay and explore the tiny capital for a couple days.
+
+![3E1202CD-A561-441B-BB2D-8B1988A52ADE 2](https://user-images.githubusercontent.com/9959680/133317981-976f9919-824d-40fa-b061-ea85aa57d3e3.JPG)
+![IMG_4094](https://user-images.githubusercontent.com/9959680/133318023-a56f7073-1777-4892-81ce-fc0fe4e532ff.JPG)
+![IMG_4103](https://user-images.githubusercontent.com/9959680/133318032-9715554c-eb73-4d43-b629-ce45dc2fa898.JPG)
+
+- In the Keflavik airport, I saw this quote from Björk's song [jóga](https://www.youtube.com/watch?v=loB0kmz_0MM) and it's how I felt during the whole trip... but puzzled in a good way, that I never felt so deeply for things and places I was seeing for the first time but oddly felt already familiar and comfortable for me to be there. <3
+
+![bjork-quote-keflavik](https://user-images.githubusercontent.com/9959680/133318859-36ea7825-d744-4524-8804-262763fa7b7c.jpg)
 
 
 ---
