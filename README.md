@@ -376,7 +376,30 @@ https://user-images.githubusercontent.com/9959680/133311892-0b3117e6-fd80-4ad3-8
 
 ### Day 7: Snorkeling at Silfra
 
+- Stopped at 🌈 [Öxarárfoss Waterfall](https://guidetoiceland.is/travel-iceland/drive/oxararfoss), which was just a few minutes from my campsite. If you visit in the morning and it's sunny, you will be treated to a rainbow 🌈 like I was!
 
+![IMG_3937](https://user-images.githubusercontent.com/9959680/133316386-5286438b-012b-44f7-b577-c4afbce7e281.JPG)
+
+- Highlight of the day was snorkeling at between the tectonic plates of Eurasia & North America at Silfra! It's the only place like this in the world. The water was crystal clear but freezing. I suited up in a drysuit but my lips were completely exposed! It was one of the coolest tours I've ever done. I booked through [Troll Expeditions](https://troll.is/tour/snorkel-between-continents-in-silfra-free-underwater-photos-small-group/) and would 100% recommend the experience. I felt safe & had a great time and got lots of gopro photos taken by our tour guide during the snorkel.
+
+
+https://user-images.githubusercontent.com/9959680/133314990-416377f3-8059-49c6-8519-b159668d400c.mp4
+
+
+
+![IMG_3996](https://user-images.githubusercontent.com/9959680/133314377-97d2298b-26f0-4fe8-ad20-3c95551c0bf3.JPG)
+![IMG_3997](https://user-images.githubusercontent.com/9959680/133316343-4fb99208-b0ea-49b6-83f0-e2e6cc7ff84a.JPG)
+
+
+- I drove to my last campground of the trip on the southeastern coast, [GATA Free camping](https://goo.gl/maps/UbhHixYuXZFK79R97). This is one of the few free campground in Iceland (though donations strongly recommended -- I left 1000 kroner in the donation box). It was super windy (55km/hr winds) and rainy. I cooked my last supper & drank hot cocoa & watched Downton Abbey in the camper. ✨
+
+![IMG_3973](https://user-images.githubusercontent.com/9959680/133315893-1098f301-f192-4c17-b84d-e755c1c7e112.JPG)
+![IMG_3994](https://user-images.githubusercontent.com/9959680/133315901-2e8fa078-c395-43c3-a13d-8c0a5eb77692.JPG)
+
+
+https://user-images.githubusercontent.com/9959680/133315919-a6699a6e-1309-4f3a-b9dd-26048af8ccdc.mp4
+
+- Total driving time for Day 7 was **~1.5 hours (100 km)**.
 
 
 ### Day 8: Blue Lagoon
