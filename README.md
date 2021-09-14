@@ -430,7 +430,7 @@ https://user-images.githubusercontent.com/9959680/133317355-9504b89a-2c6f-4735-8
 
 ![3E1202CD-A561-441B-BB2D-8B1988A52ADE 2](https://user-images.githubusercontent.com/9959680/133317981-976f9919-824d-40fa-b061-ea85aa57d3e3.JPG)
 
-- In the Keflavik airport, I saw this quote from Björk's song [jóga](https://www.youtube.com/watch?v=loB0kmz_0MM) and it's how I felt during the whole trip... but puzzled in a good way, that I never felt so deeply for things and places I was seeing for the first time but oddly felt already familiar and comfortable for me to be there. <3
+- In the Keflavik airport as I was departing, I saw this quote ("I feel emotional landscapes, they puzzle me") from Björk's song [Jóga](https://www.youtube.com/watch?v=loB0kmz_0MM) on a window in the terminal and it's how I felt during the whole trip... a bit unable to articulate my feelings about this place. I never felt so deeply for things and places I was seeing for the first time but yet felt oddly familiar already and comfortable for me to be there. <3
 
 ![bjork-quote-keflavik](https://user-images.githubusercontent.com/9959680/133318859-36ea7825-d744-4524-8804-262763fa7b7c.jpg)
 
