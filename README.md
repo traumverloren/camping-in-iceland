@@ -422,8 +422,6 @@ https://user-images.githubusercontent.com/9959680/133317355-9504b89a-2c6f-4735-8
 - After I returned the camper, I took a taxi into Reykjavík to stay and explore the tiny capital for a couple days.
 
 ![3E1202CD-A561-441B-BB2D-8B1988A52ADE 2](https://user-images.githubusercontent.com/9959680/133317981-976f9919-824d-40fa-b061-ea85aa57d3e3.JPG)
-![IMG_4103](https://user-images.githubusercontent.com/9959680/133318032-9715554c-eb73-4d43-b629-ce45dc2fa898.JPG)
-![IMG_4094](https://user-images.githubusercontent.com/9959680/133318023-a56f7073-1777-4892-81ce-fc0fe4e532ff.JPG)
 
 - In the Keflavik airport, I saw this quote from Björk's song [jóga](https://www.youtube.com/watch?v=loB0kmz_0MM) and it's how I felt during the whole trip... but puzzled in a good way, that I never felt so deeply for things and places I was seeing for the first time but oddly felt already familiar and comfortable for me to be there. <3
 
