@@ -2,6 +2,8 @@
 
 Doing a solo camping trip in Iceland is a brilliant idea if you are a person (especially a woman) that has been interested in tackling traveling or camping alone. Iceland is relatively safe & if you have a driver's license and not scared of driving on some gravel roads or one-lane bridges, it's a beautiful country to explore. ✨
 
+**Total driving distance: 2100km in ~8 days**
+
 ![](https://user-images.githubusercontent.com/9959680/131901170-5d0b9bb9-b2aa-450f-8a9f-13230ab0290d.JPG)
 
 During the entire trip I listened to [Low Roar](http://www.lowroarmusic.com/)'s album, [0](https://open.spotify.com/album/4G3ZBFg8MpTSDxDQ3m2BCb) on repeat.  It was recorded in Reykjavík and the iconic Japanese video game creator, Hideo Kojima, heard Low Roar’s 0 playing while visiting a record store in Reykjavík and became obsessed and listened to it on repeat daily. Two of the songs are on the soundtrack for Death Stranding. I'm completely obsessed with the song ["Please don't stop (Chapter 1)"](https://www.youtube.com/watch?v=h232B2wjE2s).
@@ -168,8 +170,6 @@ My camper van came with a large water reservoir container that was hooked up to 
 ## My completed itinerary
 
 ![Cute map of iceland showing roughly my driving route for each of the 8 days I had the camper](https://user-images.githubusercontent.com/9959680/132092660-2e05531f-7255-432e-b137-7cd825621121.jpg)
-
-**Total driving distance: 2100km**
 
 
 ### Day 1: Arrival
