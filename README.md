@@ -24,7 +24,6 @@ Post-trip:
   - [Day 6: Golden Circle & Secret Lagoon](#day-6-golden-circle--secret-lagoon)
   - [Day 7: Snorkeling at Silfra](#day-7-snorkeling-at-silfra)
   - [Day 8: Blue Lagoon](#day-8-blue-lagoon)
-- [My favorite moments](#my-favorite-moments)
 - [What's next?](#whats-next)
 
 ---
@@ -276,17 +275,17 @@ https://user-images.githubusercontent.com/9959680/132131587-b990ecc8-bf53-4bc3-8
 https://user-images.githubusercontent.com/9959680/132133315-888a36b0-1ed2-45e3-a96b-2848f4a15e2e.mp4
 
 
-- Drove to Lake Mývatn and stopped at Skútustaðagígar, Höfði, Grjótagjá... Skipped some memorial other things here like hiking up to edge of Hverfjall crater. There were a large amount of flying bugs (so much that hikers were wearing netted hats) that i skipped some things I had bookmarked.
+- Drove to Lake Mývatn and stopped at Skútustaðagígar, Höfði, Grjótagjá... Skipped some other sites here like hiking up to edge of Hverfjall crater. There were large amounts of flying bugs (so much that hikers were wearing netted hats) that I skipped some things I had bookmarked.
 
 ![IMG_3678](https://user-images.githubusercontent.com/9959680/132984573-364f240d-ca01-4951-863a-13a503ea7700.JPG)
 ![IMG_3684](https://user-images.githubusercontent.com/9959680/132984575-ead3ca5e-a366-49bb-a046-37a2e1230cd6.JPG)
 
-- Highlight of the day was soaking at [Mývatn baths](https://myvatnnaturebaths.is/?lang=enhttps://myvatnnaturebaths.is/?lang=en). The baths have fantastic views of Lake Mývatn & Hverfjall and the soft light blue colored mineral rich water. Beware a lot of bus tour groups stop here so it was quite busy when I went. But the bonus to this was there was a group of boomer women from Texas that showed up and were loud and colorful and taking lots of selfies of each other while giving tips on how to take hotter selfies (chin angles, using another app to retouch wrinkles :D) and it was super fun to eavesdrop them & literally lol from it :).
+- Highlight of the day was soaking at [Mývatn baths](https://myvatnnaturebaths.is/?lang=enhttps://myvatnnaturebaths.is/?lang=en). The baths have fantastic views of Lake Mývatn & Hverfjall and the soft light blue colored mineral rich water. Beware a lot of bus tour groups stop here so it was quite busy when I went. But the bonus to this was there was a group of boomer women from Texas that showed up and were loud and colorful and taking lots of selfies of each other while giving tips on how to take hotter selfies (best chin angles, using another app to retouch wrinkles :D) and it was super fun to eavesdrop them & literally lol from it :).
 
 ![IMG_4447 2](https://user-images.githubusercontent.com/9959680/132985676-02951bf4-cfa6-4e04-ac85-81e97f79260f.jpg)
 
 
-- After the baths, I drove A LOT. I again skipped some attractions - Krafla crater & Dettifoss waterfall. It was buggy & raining intermittently & I was worried about driving a long distance to the southeastern part of Iceland to camp for the night so I opted to skip the detours to visit them.
+- After the baths, I drove A LOT. I again skipped some things - Krafla crater & Dettifoss waterfall. It was buggy & raining intermittently & I was worried about driving a long distance to the southeastern part of Iceland to camp for the night so I opted to skip them.
 
 ![IMG_3693](https://user-images.githubusercontent.com/9959680/132984968-a2a660dd-cbc2-4818-8193-f36dde8c8434.JPG)
 
@@ -300,12 +299,12 @@ https://user-images.githubusercontent.com/9959680/132133315-888a36b0-1ed2-45e3-a
 
 ### Day 5: Southern Iceland
 
-- This was my longest & most tiresome driving day. I felt the pressure of my driving days coming to a close in a couple of days and I wanted to plan for a last minute decision to go snorkeling at Silfra on the 7th day, so I knew I had to get a big chunk of driving done today. In retrospect, this section of Iceland is gorgeous with black sand beaches and waterfalls to expore & I ended up skipping some sights I wanted to see. Definitely coming back here with several days to slowly explore this area in the future.
+- This was my longest & most tiresome driving day. I felt the pressure of my driving days coming to a close in a couple of days and I wanted to plan for a last minute decision to go snorkeling at Silfra on the 7th day, so I knew I had to get a big chunk of driving done today. In retrospect, this section of Iceland is gorgeous with black sand beaches and waterfalls to expore & I ended up skipping some sights I wanted to see. 😭 Definitely plan to come back here with several days to slowly explore this area in the future.
 
 https://user-images.githubusercontent.com/9959680/133134439-09d6c2b9-29c0-4e76-b074-026c4d2bc82d.mp4
 
-- The drive started out super sunny! I skipped [Djúpavogskörin Natural Geothermal Pool](https://www.google.com/maps/place/Dj%C3%BApavogsk%C3%B6rin+Natural+Geothermal+Pool/@64.6539378,-14.3434785,17z/data=!3m1!4b1!4m5!3m4!1s0x48cec304bc744d6b:0xc0e2cd45ef94cb2e!8m2!3d64.6539378!4d-14.3412898?hl=en-US) that was nearby my campsite to see other sites. Would have stopped I had time L(
-- I approached dense fog. I went through a mountain tunnel at Vestrahorn Mountain & ended up in dense fog on the other side! I was going to visit the beach at [Stokksnes](https://guidetoiceland.is/travel-iceland/drive/stokksnes) but was deterred that I'd much out of it in the fog, so kept going.
+- The drive started out super sunny! I skipped [Djúpavogskörin Natural Geothermal Pool](https://www.google.com/maps/place/Dj%C3%BApavogsk%C3%B6rin+Natural+Geothermal+Pool/@64.6539378,-14.3434785,17z/data=!3m1!4b1!4m5!3m4!1s0x48cec304bc744d6b:0xc0e2cd45ef94cb2e!8m2!3d64.6539378!4d-14.3412898?hl=en-US) that was nearby my campsite to see other sites. Would have stopped here if I had time. :(
+- I approached a looming fog. I went through a mountain tunnel at Vestrahorn Mountain & ended up in dense fog on the other side! I was going to visit the beach at [Stokksnes](https://guidetoiceland.is/travel-iceland/drive/stokksnes) but was deterred that I'd much out of it in the fog, so kept going.
 
 ![IMG_3730](https://user-images.githubusercontent.com/9959680/133135406-8f85e121-d03c-4ec8-9298-3651cc4edbd6.JPG)
 ![IMG_3732](https://user-images.githubusercontent.com/9959680/133135410-efe25173-19f4-40d9-a649-82f258879e63.JPG)
@@ -332,29 +331,51 @@ https://user-images.githubusercontent.com/9959680/133137069-4e440561-4c48-42ce-a
 https://user-images.githubusercontent.com/9959680/133137059-fea57365-cf81-4031-9b42-7cd7f2d788b5.mp4
 
 
-- I completely blanked out again when driving and drove past the Black Sand Beach & [Sólheimasandur Plane Wreckage](https://goo.gl/maps/6edTgi6CdH8pJ4VN7)! Ugh!
+- I completely blanked out again when driving and drove past the Black Sand Beach & [Sólheimasandur Plane Wreckage](https://goo.gl/maps/6edTgi6CdH8pJ4VN7)! 🤦 Ugh!
 - Stopped at beautiful [Skógafoss Waterfall](https://guidetoiceland.is/connect-with-locals/regina/the-beautiful-skogafoss-waterfall-and-the-legend-of-the-treasure-chest).
 
 ![IMG_3801](https://user-images.githubusercontent.com/9959680/133139682-dec2e8ac-eb98-4f31-8d42-bd881cc7bcfe.JPG)
 
-- Finally ended up camping at the deserted [Álfaskeið campground](https://goo.gl/maps/6sNx75sieDZ5CUjN8) near Flúðir. It was a bit sketchy to drive up the entrance with my little 2WD camper and I had a moment where I thought I might have gotten the camper stuck, but it ended up being a super quiet and pastoral setting for camping. I was exhausted and crashed hard this night.
+- Finally ended up camping at the deserted [Álfaskeið campground](https://goo.gl/maps/6sNx75sieDZ5CUjN8) near Flúðir. It was a bit sketchy to drive up the entrance with my little 2WD camper and I had a moment where I thought I might have gotten the camper stuck, but it ended up being a super quiet and pastoral setting for camping. I was exhausted and crashed hard this night. This campground is a primitive campsite with only cold water & toilets.
 
 
 https://user-images.githubusercontent.com/9959680/133140577-453e3927-edef-4c79-9add-ca8dfee743a5.mp4
 
 
-
-
-- Total driving time for Day 4 was **7 hours (530 km)**.
-
+- Total driving time for Day 5 was **7 hours (530 km)**.
 
 
 ### Day 6: Golden Circle & Secret Lagoon
 
+- Didn't make coffee at the campsite as I was anxious about getting the camper out of the campsite without getting stuck 😅
+- Drove to see the majestic [Gullfoss Waterfall](https://guidetoiceland.is/travel-iceland/drive/gullfoss)
 
+![IMG_3829](https://user-images.githubusercontent.com/9959680/133308079-c026d9cb-f501-431e-b4be-ebf3d86222b0.JPG)
+
+https://user-images.githubusercontent.com/9959680/133303311-7d874675-1073-49e9-8c2b-378bcc5ab81a.mp4
+
+- Drove to see the [Geysir](https://guidetoiceland.is/travel-iceland/drive/geysir) erupt.
+
+https://user-images.githubusercontent.com/9959680/133303326-49853d32-3860-4b0f-a671-789879bf0892.mp4
+
+- Spent my afternoon relaxing at the super chill [Secret Lagoon](https://secretlagoon.is/). It wasn't busy and was so nice to relax in the water, then take a nice hot shower after camping.
+
+![IMG_3888](https://user-images.githubusercontent.com/9959680/133310446-bb23c47e-227c-4cd1-8c90-bb698960f283.jpg)
+
+- Drove to [Kerid crater](https://www.atlasobscura.com/places/kerid-crater-lake) and hiked down to the bottom of the crater where it is eerily quiet & protected from the wind at the top.
+
+![IMG_3890](https://user-images.githubusercontent.com/9959680/133310776-0dd217ed-8ef3-40aa-8b47-28c6fb4b4f27.JPG)
+![IMG_3900](https://user-images.githubusercontent.com/9959680/133310669-7ef52f0d-5762-4db0-a797-8ebb5fa32aa5.JPG)
+
+- Drove to [Thingvellir National Park](https://guidetoiceland.is/connect-with-locals/jorunnsg/ingvellir-national-park) & camped here overnight since it's only a few minutes from Silfra where I would be snorkeling the next day! Thingvellir an incredibly important site for Icelandic history, a UNESCO World Heritage Site, and the tectonic plates of Eurasia & North American meet (and are slowly drifting apart).
+
+https://user-images.githubusercontent.com/9959680/133311892-0b3117e6-fd80-4ad3-8f62-7f9b7f5186e8.mov
+
+- Total driving time for Day 6 was **~2.5 hours (180 km)**.
 
 
 ### Day 7: Snorkeling at Silfra
+
 
 
 
@@ -364,8 +385,6 @@ https://user-images.githubusercontent.com/9959680/133140577-453e3927-edef-4c79-9
 
 ---
 
-## My favorite moments
-
----
-
 ## What's next?
+
+I'm going back as soon as I can! Either in a couple months or in the spring to hopefully see the Northern Lights! I think about how great I felt there **every day** since I got back from the trip. My anxiety and self-doubt was at 0% during the trip, I felt confident and strong. 💪 It filled me with so much happiness to fall asleep & wake up in the camper everyday. 😊
