@@ -169,6 +169,8 @@ My camper van came with a large water reservoir container that was hooked up to 
 
 ![Cute map of iceland showing roughly my driving route for each of the 8 days I had the camper](https://user-images.githubusercontent.com/9959680/132092660-2e05531f-7255-432e-b137-7cd825621121.jpg)
 
+**Total driving distance: 2100km**
+
 
 ### Day 1: Arrival
 
@@ -178,7 +180,7 @@ My camper van came with a large water reservoir container that was hooked up to 
 ![IMG_3375](https://user-images.githubusercontent.com/9959680/132093302-c6f76302-3732-4412-9c1e-8ee80ef6ff0f.jpg)
 ![IMG_3376](https://user-images.githubusercontent.com/9959680/132093305-a1230451-1704-45df-a32b-1d96681c7a50.jpg)
 
-- Drove **2 hours (143km)** to my first campground, [Snorrastaðir Farm](https://snorrastadir.is/) in Borgarnes.
+- Drove **2 hours (150km)** to my first campground, [Snorrastaðir Farm](https://snorrastadir.is/) in Borgarnes.
 
 ![IMG_3383](https://user-images.githubusercontent.com/9959680/132093315-c186b4c9-3db0-49a7-995a-9d403cdaf871.jpg)
 ![IMG_3426](https://user-images.githubusercontent.com/9959680/132095136-9f3404c8-7aa9-4470-b392-f072e028de68.jpg)
@@ -188,6 +190,9 @@ My camper van came with a large water reservoir container that was hooked up to 
 ![IMG_3385](https://user-images.githubusercontent.com/9959680/132093325-be28cbd1-9d73-4349-bbf1-42c32ce5e6bf.jpg)
 ![IMG_3421](https://user-images.githubusercontent.com/9959680/132093326-198b45f0-8748-4962-b4a9-ae03afc65da3.jpg)
 ![IMG_3423](https://user-images.githubusercontent.com/9959680/132093435-20097419-ffc4-447f-b4e6-9a71bf4c7061.jpg)
+
+- Total driving time for Day 1 was **2 hours (150 km)**.
+
 
 ### Day 2: Snæfellsnes Peninsula
 
@@ -415,6 +420,8 @@ https://user-images.githubusercontent.com/9959680/133317355-9504b89a-2c6f-4735-8
 - It was stormy and windy and lots of tourists there, but Blue Lagoon is beautiful. ✨
 
 ![IMG_4073](https://user-images.githubusercontent.com/9959680/133317440-0183f114-fdd9-48c8-92cb-ba85e1f3f1e1.JPG)
+
+- Total driving time for Day 8 was **~1 hours (65 km)**.
 
 
 ### Day 8-9: Reykjavík
