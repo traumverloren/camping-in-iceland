@@ -350,7 +350,8 @@ https://user-images.githubusercontent.com/9959680/133140577-453e3927-edef-4c79-9
 - Didn't make coffee at the campsite as I was anxious about getting the camper out of the campsite without getting stuck 😅
 - Drove to see the majestic [Gullfoss Waterfall](https://guidetoiceland.is/travel-iceland/drive/gullfoss)
 
-![IMG_3829](https://user-images.githubusercontent.com/9959680/133308079-c026d9cb-f501-431e-b4be-ebf3d86222b0.JPG)
+
+![IMG_3829](https://user-images.githubusercontent.com/9959680/133312864-8528a7f3-448e-4312-a611-ebfd2a991b27.JPG)
 
 https://user-images.githubusercontent.com/9959680/133303311-7d874675-1073-49e9-8c2b-378bcc5ab81a.mp4
 
@@ -360,12 +361,11 @@ https://user-images.githubusercontent.com/9959680/133303326-49853d32-3860-4b0f-a
 
 - Spent my afternoon relaxing at the super chill [Secret Lagoon](https://secretlagoon.is/). It wasn't busy and was so nice to relax in the water, then take a nice hot shower after camping.
 
-![IMG_3888](https://user-images.githubusercontent.com/9959680/133310446-bb23c47e-227c-4cd1-8c90-bb698960f283.jpg)
-
 - Drove to [Kerid crater](https://www.atlasobscura.com/places/kerid-crater-lake) and hiked down to the bottom of the crater where it is eerily quiet & protected from the wind at the top.
 
-![IMG_3890](https://user-images.githubusercontent.com/9959680/133310776-0dd217ed-8ef3-40aa-8b47-28c6fb4b4f27.JPG)
-![IMG_3900](https://user-images.githubusercontent.com/9959680/133310669-7ef52f0d-5762-4db0-a797-8ebb5fa32aa5.JPG)
+![IMG_3890](https://user-images.githubusercontent.com/9959680/133312958-dcbb4ea7-7c97-4b17-8510-f069f450891d.JPG)
+![IMG_3900](https://user-images.githubusercontent.com/9959680/133313081-0845583c-5c72-4f84-8f1b-bd3a39b84627.JPG)
+
 
 - Drove to [Thingvellir National Park](https://guidetoiceland.is/connect-with-locals/jorunnsg/ingvellir-national-park) & camped here overnight since it's only a few minutes from Silfra where I would be snorkeling the next day! Thingvellir an incredibly important site for Icelandic history, a UNESCO World Heritage Site, and the tectonic plates of Eurasia & North American meet (and are slowly drifting apart).
 
