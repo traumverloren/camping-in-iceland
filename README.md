@@ -1,3 +1,9 @@
+<meta charset="utf-8">
+<p>I've moved this post to my blog!</p>
+<p>Redirecting to https://adhdexpat.com/posts/solo-travel-in-iceland/</p>
+<meta http-equiv="refresh" content="0; URL=https://adhdexpat.com/posts/solo-travel-in-iceland/">
+<link rel="canonical" href="https://adhdexpat.com/posts/solo-travel-in-iceland/">
+
 # My Guide to Solo Camping in Iceland 🇮🇸
 
 Doing a solo camping trip in Iceland is a brilliant idea if you are a person (especially a woman) that has been interested in tackling traveling or camping alone. Iceland is relatively safe & if you have a driver's license and not scared of driving on some gravel roads or one-lane bridges, it's a beautiful country to explore. ✨
